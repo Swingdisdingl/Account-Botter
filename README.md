@@ -1,5 +1,5 @@
 # Account-Botter
-Account botter made in C++ generates accounts with API Hook on Discord.                             
+Account botter made in C++ generates accounts with API Hook on Discord. Join discord.gg/loader for more information.                        
 # Free-Botter
 There are no Botting services that are free, while they are probably being a rat or virus.                                           
 You will probably never find someone that sells this service as cheap as I do.                                                    

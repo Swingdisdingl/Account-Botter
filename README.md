@@ -50,9 +50,9 @@ You will probably never find someone that sells this service as cheap as I do.
 • Venmo                                                                                                                                       
 # Security                                                                                                                                       
 • Malwarebytes                                                                                                                                       
-• Ipvanish
-• OpenVPN                                                                                                                                       
-• Nordvpn                                                                                                                                       
+• Ipvanish                                                                                                       
+• OpenVPN                                                                                                                                                       
+• Nordvpn                                                                                                                                                        
 • McAfee                                                                                                                                       
 • TunnelBear                                                                                                                                       
 • Ovpn                                                                                                                                       

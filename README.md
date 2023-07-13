@@ -5,20 +5,33 @@ There are no Botting services that are free, while they are probably being a rat
 You will probably never find someone that sells this service as cheap as I do.                                                    
 # Service                                                                                                                                       
 # Food                                                                                                                                       
-• ShakeShack + CC                                                                                                                                       
+• ShakeShack + CC 
+• Smoothie King  
+• Dunkin'Donuts                                                                                                                                     
 • GFuel Points                                                                                                                                       
-• IHOP Points                                                                                                                                       
-• Domino's                                                                                                                                        
+• IHOP Points  
+• Taco Bell                                                              
+• PF Changes                          
+• Jersey Mikes
+• Victoria Secret + CC                                                                                                                                     
+• Domino's  
+• Panera Bread + CC                                                                                                                                    
 • Casey's                                                                                                                                       
-• DelTaco                                                                                                                                       
+• DelTaco  
+• Buffalo Wild Wings
+• TGI Fridays                                                                                                                                     
 • Subway                                                                                                                                       
-# Shopping                                                                                                                                       
-• MediaFire                                                                                                                                       
-• Cmore Sport                                                                                                                                       
-• UnderArmour                                                                                                                                       
-• Casey’s Balance                                                                                                                                       
+# Shopping
+• Target    
+• Nordstock Rack                                                                                                                              
+• MediaFire   
+• Hilton Honors                                                                                                                                    
+• Cmore Sport
+• Bath & Body Works                                                                                                                                       
+• UnderArmour                                                                                                                                                                                                                                                                             
 • Instacart + CC                                                                                                                                       
-• RedBull Points                                                                                                                                       
+• RedBull Points 
+• Casey’s Balance                                                                                                                                       
 • GFuel Points                                                                                                                                       
 • HotTopic                                                                                                                                       
 • Walmart                                                                                                                                       
@@ -53,7 +66,8 @@ You will probably never find someone that sells this service as cheap as I do.
 • Mycanal                                                                                                                                       
 • PlexTV                                                                                                                                       
 • myCanal                                                                                                                                       
-• Viaplay                                                                                                                                        
+• Viaplay  
+• Fandango                                                                                                                                      
 • Cmore                                                                                                                                       
 • Cmore Sport                                                                                                                                       
 • TeliaPlay                                                                                                                                        

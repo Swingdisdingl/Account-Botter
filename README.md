@@ -5,33 +5,33 @@ There are no Botting services that are free, while they are probably being a rat
 You will probably never find someone that sells this service as cheap as I do.                                                    
 # Service                                                                                                                                       
 # Food                                                                                                                                       
-• ShakeShack + CC 
-• Smoothie King  
+• ShakeShack + CC                                                                         
+• Smoothie King                                                                                   
 • Dunkin'Donuts                                                                                                                                     
 • GFuel Points                                                                                                                                       
 • IHOP Points  
 • Taco Bell                                                              
 • PF Changes                          
-• Jersey Mikes
+• Jersey Mikes                                                                   
 • Victoria Secret + CC                                                                                                                                     
 • Domino's  
-• Panera Bread + CC                                                                                                                                    
-• Casey's                                                                                                                                       
+• Panera Bread + CC                                                                                                                                              
+• Casey's                                                                                                                                                       
 • DelTaco  
-• Buffalo Wild Wings
-• TGI Fridays                                                                                                                                     
+• Buffalo Wild Wings                                                                                                 
+• TGI Fridays                                                                                                                                                   
 • Subway                                                                                                                                       
 # Shopping
 • Target    
 • Nordstock Rack                                                                                                                              
 • MediaFire   
-• Hilton Honors                                                                                                                                    
-• Cmore Sport
-• Bath & Body Works                                                                                                                                       
-• UnderArmour                                                                                                                                                                                                                                                                             
+• Hilton Honors                                                                                                                                      
+• Cmore Sport                                                                                                            
+• Bath & Body Works                                                                                                                                             
+• UnderArmour                                                                                                                                           
 • Instacart + CC                                                                                                                                       
-• RedBull Points 
-• Casey’s Balance                                                                                                                                       
+• RedBull Points                                                                                     
+• Casey’s Balance                                                                                                                                                
 • GFuel Points                                                                                                                                       
 • HotTopic                                                                                                                                       
 • Walmart                                                                                                                                       
